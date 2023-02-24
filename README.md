@@ -1,0 +1,1 @@
+# c0mpetenciadebes0s
